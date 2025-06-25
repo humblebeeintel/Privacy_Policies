@@ -41,4 +41,4 @@ We may update this Privacy Policy periodically to reflect changes in our practic
 
 ## Contact Us
 
-If you have questions or concerns about this Privacy Policy or our data practices, please contact us at [mirsalim9229@gmail.com](mailto:mirsalim9229@gmail.com).
+If you have questions or concerns about this Privacy Policy or our data practices, please contact us at [mirsalim9229@gmail.com](mailto:contact@humblebee.ai).
